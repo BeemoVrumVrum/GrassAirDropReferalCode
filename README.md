@@ -1,6 +1,6 @@
 # 🚀Grass Airdrop Referral Code💡 #
 
-Referal Code: MssRqNDh_fOWOf5 🔗 Quick Link: https://app.getgrass.io/register?referralCode=BnIJmnusnZzc5Um
+Referal Code: BnIJmnusnZzc5Um 🔗 Quick Link: https://app.getgrass.io/register?referralCode=BnIJmnusnZzc5Um
 
 Hey crypto enthusiasts 🌐!
 
